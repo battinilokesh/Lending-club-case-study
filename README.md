@@ -56,4 +56,4 @@ Thanks,
 
 
 ## Contact
-Created by Shashank Lokesha - Please feel free to contact me!
+Created by Shashank Lokesha and Battini Lokesh - Please feel free to contact me!
